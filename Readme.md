@@ -1,5 +1,5 @@
 # Below is a list of reports:
-- not limited to crimes committed against my wife and not limited to stalking, intimidation, serious criminal vilifcaiton and extreme hate crimes under Australian law (although I note the hate crime laws are not retrospective prior to January 2026).
+- Not limited to crimes committed against my wife and I. Also not limited to stalking, intimidation, serious criminal vilifcaiton and extreme hate crimes under Australian law (although I note the hate crime laws are not retrospective prior to January 2026).
 - I am not publically accusing any individual - if you have feelings of guilt hang your head in shame rather that further retribution agaisnt victims
 - I reject the corrupt idea that victims of international crime, are just having mental health problems, where there is objective evidence in Australia and overseas against perpetrators of criminal human rights violations
 - Below is the list provided in the public interest without malice
