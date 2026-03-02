@@ -3,7 +3,7 @@
 - I am not publically accusing any individual - if you have feelings of guilt hang your head in shame rather that further retribution agaisnt victims
 - I reject the corrupt idea that victims of international crime, are just having mental health problems, where there is objective evidence in Australia and overseas against perpetrators of criminal human rights violations
 - List does not include AFP reports 
-- Below is the list provided in the public interest without malice, and may be used as context in Australian court proceedings
+- Below is the list provided in the public interest without malice, and may be used as context in Australian court proceedings when contextually relevant
 
 ## International Criminal Court
 
