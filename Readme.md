@@ -5,6 +5,7 @@
 - List does not include AFP reports 
 - Below is the list provided in the public interest without malice, and may be used as context in Australian court proceedings when contextually relevant
 - Australia is a corrupt police state as evidenced by the criminal human rights abuses against civilians and deliberate targeting of whistleblowers with continuous lawfare for more than 2 years and attempts to shout down accusers and victims in relation to international criminal human rights violations
+- I do not have contempt for international human rights laws
 
 ## International Criminal Court
 
