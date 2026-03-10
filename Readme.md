@@ -5,7 +5,7 @@
 - I am not publically accusing any individual - if you have feelings of guilt hang your head in shame rather that further retribution agaisnt victims
 - I reject the corrupt idea that victims of international crime, are just having mental health problems, where there is objective evidence in Australia and overseas against perpetrators of criminal human rights violations
 - List does not include AFP reports
-- Regardles of UNHRC or ICC investigations, international human rights abusers should be extradited where possible, given the systemic corruption in Australia
+- Regardles of UNHRC or ICC investigations, international human rights abusers should be extradited where possible, given the systemic corruption in Australia, because human rights abusing cowards need to face real consequences
   
 ## International Criminal Court
 
